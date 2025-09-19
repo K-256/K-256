@@ -1,3 +1,7 @@
 Hi
-I like Rust.
+
+I make thingys
+And they run
+On Flextape 🦾
+
 🤓
