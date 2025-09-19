@@ -1,9 +1,1 @@
-Hi
-
-I make thingys
-
-And they run
-
-On Flextape 🦾
-
-🤓
+Flextape, zipties, Dr. Pepper, and the word thingy
